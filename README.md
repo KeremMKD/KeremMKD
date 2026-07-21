@@ -18,7 +18,7 @@ Asıl olayımız ve tüm muhabbet ise **Discord'da** dönüyor. Sorun varsa, bir
 
 **NOT: Instagram ve Twitter dahil olmak üzere hiçbir sosyal medya kullanmıyorum**
 
-## Bana Ulaşın! 
+## Bana Ulaşın! 📪
 
 Geri bildirim paylaşmak için, bana ulaşmak için veya iş teklifleri için bana e-posta / mesaj yollayabilirsiniz! Biraz zaman alsa bile tüm e-postalara / mesajlara cevap veriyorum.
 
