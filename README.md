@@ -14,7 +14,7 @@ Asıl olayımız ve tüm muhabbet ise **Discord'da** dönüyor. Sorun varsa, bir
 
 ## Beni buralardan bulabilirsiniz 🌐
 
-[📺 YouTube Kanalım](https://youtube.com/@KeremMKD) | [🤖 Transformers YouTube Kanalım](https://youtube.com/@KeremMKDTF) | [📹 Odysee Kanalım](https://odysee.com/$/invite/@KeremMKD) [💬 Discord Sunucumuz (+13)](https://discord.com/invite/FR5DpnSyaF)
+[📺 YouTube Kanalım](https://youtube.com/@KeremMKD) | [🤖 Transformers YouTube Kanalım](https://youtube.com/@KeremMKDTF) | [📹 Odysee Kanalım](https://odysee.com/$/invite/@KeremMKD) | [💬 Discord Sunucumuz (+13)](https://discord.com/invite/FR5DpnSyaF)
 
 **NOT: Instagram ve Twitter dahil olmak üzere hiçbir sosyal medya kullanmıyorum**
 
