@@ -1,8 +1,8 @@
-## 👋 Selam dostlar! Ben Kerem D. [ama siz bana KeremMKD veya MKD diyebilirsiniz 😉]
+## Selam dostlar! Ben Kerem D. [ama siz bana KeremMKD veya MKD diyebilirsiniz 😉] 👋
 
 **14 yaşında liseli bir gencim ve Linux'ta kendi projelerimi geliştiriyorum! Aynı zamanda bunları bazı diğer sitelerde paylaşıyorum!**
 
-## Hikayem 🤔
+## Hikayem 📖
 
 Yazılıma ilgim küçük yaşlardan beri var, daha 3-4 yaşlarındayken bile robotlara yazılımlara ve kodlamaya sempati besliyordum. 2021 yılında ilk kişisel bilgisayarıma ulaştıktan sonra yazılım hakkında bol bol araştırma yaptım. 2024 yılının Kasım ayında ise yeni bir PC toplayıp HTML ve Shell programlama dillerini öğrendim ve son olarak 2026 yılı itibari ile Linux (Arch Linux) kullanmaya başladım.
 
