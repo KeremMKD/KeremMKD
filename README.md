@@ -12,7 +12,7 @@ Asıl olayımız ve tüm muhabbet ise **Discord'da** dönüyor. Sorun varsa, bir
 
 İleride bir web sitesi açacağım, orada devam ederiz sorulara burada kimseyi baymayalım :)
 
-## Beni buralardan bulabilirsiniz 🌐
+## Beni buralarda bulabilirsiniz! 🌐
 
 [📺 YouTube Kanalım](https://youtube.com/@KeremMKD) | [🤖 Transformers YouTube Kanalım](https://youtube.com/@KeremMKDTF) | [📹 Odysee Kanalım](https://odysee.com/$/invite/@KeremMKD) | [💬 Discord Sunucumuz (+13)](https://discord.com/invite/FR5DpnSyaF)
 
