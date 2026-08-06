@@ -22,7 +22,7 @@ Asıl olayımız ve tüm muhabbet ise **Discord'da** dönüyor. Sorun varsa, bir
 
 Geri bildirim paylaşmak için, bana ulaşmak için veya iş teklifleri için bana e-posta / mesaj yollayabilirsiniz! Biraz zaman alsa bile tüm e-postalara / mesajlara cevap veriyorum.
 
-- Email: [KeremMKDBusiness@gmail.com](mailto:KeremMKDBusiness@gmail.com)
+- Email: [mkdprime48@gmail.com](mailto:mkdprime48@gmail.com)
 - Discord Hesap: [@keremmkd](https://discord.com/users/1202227068075782205)
 - XMPP Hesap: [MKDPrimeXMPP@conversations.im](xmpp:MKDPrimeXMPP@conversations.im) - Lütfen OMEMO şifrelemesini tercih edin
 - Matrix Hesap: [@tfevreni48:matrix.org](https://matrix.to/#/@tfevreni48:matrix.org)
